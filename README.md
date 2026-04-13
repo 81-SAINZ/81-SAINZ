@@ -6,4 +6,4 @@
 
 <br/>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=103CFF&center=true&vCenter=true&width=235&lines=for+some+reason%2C+oscar+and+i..;we+seem+to+have+a+magnet+recently;..+between+each+other)](https://git.io/typing-svg)
+look @ main 4 links & info
